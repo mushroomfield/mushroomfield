@@ -1,1 +1,1 @@
-<p align='center'> Jamin/Junpei -- 16 y/o </br> He/Him/They/Them , Transmale </br> Junpei Introject !! Plural . Multishipper </br> Neurodivergent </br> https://itajun-pei.straw.page </p>
+<p align='center'> jamin , plural / did system . sixteen (apr 9 2009) </br> multishipper . artist (insta coming soon!) </br> https://mr-doodlepaws.straw.page </p>
