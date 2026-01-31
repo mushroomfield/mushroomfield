@@ -1,1 +1,1 @@
-<p align='center'> jamin , plural / did system . sixteen (apr 9 2009) </br> multishipper . artist (insta coming soon!) </br> https://mr-doodlepaws.straw.page </p>
+<p align='center'> jamin , plural / did system . sixteen (apr 9 2009) </br> multishipper . artist - art comms open </br> https://www.instagram.com/jaminartz/ <- art </br> https://mr-doodlepaws.straw.page </p>
