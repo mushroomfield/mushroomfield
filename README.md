@@ -1,2 +1,1 @@
-<p align='center'> inigo , plural / did system . sixteen (apr 9 2009) </br> multishipper . artist - <a href='https://cara.app/post/41b9a8c9-bd26-4edb-ae3e-64041657876d'> art commission info </a> </br> https://mr-doodlepaws.straw.page </br></br>
- </p>
+<p align='center'> fungi / inigo / eric </br> bodily sixteen , traumagenic system</br> disabled , collectively tmale queer </br> fungi (aka eric) is our host. please do not ask for other parts to front. </p>
