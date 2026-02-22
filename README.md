@@ -1,1 +1,1 @@
-<p align='center'> fungi / inigo / eric </br> bodily sixteen , traumagenic system</br> disabled , collectively tmale queer </br> fungi (aka eric) is our host. please do not ask for other parts to front. </p>
+<p align='center'> fungi / inigo / eric </br> bodily sixteen , traumagenic system</br> disabled , collectively tmale queer </br> fungi (aka eric) is our host. please do not ask for other parts to front.</br> fungi goes by she/they and is  tfem. please understand she's not connected to source at all. </p>
